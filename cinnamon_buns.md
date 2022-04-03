@@ -3,7 +3,9 @@ https://simplyhomecooked.com/homemade-cinnamon-rolls/
 
 Mix milk @ 105 degrees with yeast and sugar. Let sit 10 minutes. Add milk mixture to the other ingredients and mix about 10 minutes into dough ball. Shape into ball and place in greased bowl to rise for about an hour. Bake at 350 degrees Fahrenheit for 20-25 minutes or until lightly browned.
 
-Notes: Dough was very wet, so kneaded in some additional flour on the bench. Maybe skip the vanilla next time?
+Notes: 
+- Dough was very wet, so kneaded in some additional flour on the bench. Maybe skip the vanilla next time?
+- Baked for 10 minutes then rotated and covered in foil. Removed from oven at 17 minutes. Was cooked the right amount. Maybe a minute less?
 
 ### Dough:
 - 340.5g milk
