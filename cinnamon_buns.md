@@ -16,6 +16,8 @@ Notes:
 - 1.5g salt
 - 56.5g butter
 - 4.67g vanilla extract
+- 2 eggs
+
 
 ### Filling:
 - 100g brown sugar 
