@@ -25,10 +25,10 @@ Notes:
 - 1.5 tsp cardamom
 
 ### Icing:
-- 85g cream cheese, softened
-- 57g unsalted butter, softened
-- 170g confectioners' sugar
-- 1/2 teaspoon vanilla extract
+- 85g cream cheese, softened 106
+- 57g unsalted butter, softened 71
+- 170g confectioners' sugar 212
+- 1/2 teaspoon vanilla extract 1
 - bit of milk and salt?
 
 
