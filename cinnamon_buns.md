@@ -10,7 +10,12 @@ Put everything in the bowl and mix for 9 minutes. Add a bit of flour as needed. 
 - 56.5g butter
 - 2g vanilla extract
 - 2 eggs
-- 
+
+### Filling:
+- 115g brown sugar 
+- 24g cinnamon
+- 2g cardamom
+
 
 ## April 2022
 https://simplyhomecooked.com/homemade-cinnamon-rolls/
