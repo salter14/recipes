@@ -1,3 +1,17 @@
+## November 1, 2022
+Put everything in the bowl and mix for 9 minutes. Add a bit of flour as needed. Added 25g this time.
+
+### Dough:
+- 340.5g milk
+- 9g yeast
+- 570g flour
+- 75g sugar
+- 1.5g salt
+- 56.5g butter
+- 2g vanilla extract
+- 2 eggs
+- 
+
 ## April 2022
 https://simplyhomecooked.com/homemade-cinnamon-rolls/
 
@@ -22,7 +36,7 @@ Notes:
 ### Filling:
 - 100g brown sugar 
 - 20g cinnamon
-- 1.5 tsp cardamom
+- 2g cardamom
 
 ### Icing:
 - 85g cream cheese, softened 106
