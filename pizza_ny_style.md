@@ -26,3 +26,11 @@ Produces two dough balls that will make 17 inch pizzas.
 * Place balls into containers or ziplock bags lightly coated in olive oil. Ensure the dough ball is also lightly coated in the oil. 
 * Put dough in fridge if using within 3 days. 
   * Alternative: Place in freezer for longer storage and move from freezer to fridge 24 hours before prep time.
+
+# Sauce
+* 28 oz can of steam pealed tomatoes (California)
+* 8g sugar
+* 2g salt
+* bit of oregano and basil
+* few grinds of fresh black pepper
+  
