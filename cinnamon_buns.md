@@ -1,7 +1,7 @@
 ## November 1, 2022
 Put everything in the bowl and mix for 9 minutes. Add a bit of flour as needed. Added 25g this time.
 
-Let rise 1 hour. Roll and add filling. Slice into rolls and put in pan lined with parchment. Let rise another 30+ minutes, then bake.
+Place dough in greased bolw and let rise 1 hour. Roll and add filling. Slice into rolls and put in pan lined with parchment. Let rise another 30+ minutes, then bake.
 
 Baked 350 for 19 minutes (10 uncovered, 7 covered, then 2 more). Was a bit underdone. May be because I only made 6 rolls and put them all in the pan together. May need to bake longer for this configuration.
 
