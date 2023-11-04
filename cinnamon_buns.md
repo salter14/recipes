@@ -1,3 +1,6 @@
+## November 4, 2023
+Filling can be cut down a bit. Probably by 10-20%.
+
 ## November 1, 2022
 Put everything in the bowl and mix for 9 minutes. Add a bit of flour as needed. Added 25g this time.
 
