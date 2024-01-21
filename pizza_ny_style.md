@@ -14,6 +14,8 @@ https://www.pizzamaking.com/forum/index.php/topic,9698.msg84195.html
 * Oil 3%: 24g
 * Total: 1355.4g
 
+* Cheese: 150g or a little more
+
 Produces two dough balls that will make 17 inch pizzas.
 
 ## Directions (stand mixer)
