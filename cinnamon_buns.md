@@ -2,7 +2,7 @@
 Filling can be cut down a bit. Probably by 10-20%.
 
 ## November 1, 2022
-Put everything in the bowl and mix for 9 minutes. Add a bit of flour as needed. Added 25g this time.
+Put everything in the bowl and mix for 9 minutes. Add a bit of flour as needed. 
 
 Place dough in greased bolw and let rise 1 hour. Roll and add filling. Slice into rolls and put in pan lined with parchment. Let rise another 30+ minutes, then bake.
 
@@ -11,7 +11,7 @@ Baked 350 for 19 minutes (10 uncovered, 7 covered, then 2 more). Was a bit under
 ### Dough:
 - 340.5g milk
 - 9g yeast
-- 570g flour
+- 600g flour
 - 75g sugar
 - 1.5g salt
 - 56.5g butter
