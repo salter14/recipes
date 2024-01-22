@@ -19,9 +19,9 @@ Baked 350 for 19 minutes (10 uncovered, 7 covered, then 2 more). Was a bit under
 - 2 eggs
 
 ### Filling:
-- 115g brown sugar 
-- 24g cinnamon
-- 2g cardamom
+- 100g brown sugar 
+- 21g cinnamon
+- 1.5g cardamom
 
 
 ## April 2022
