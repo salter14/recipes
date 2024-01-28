@@ -11,7 +11,7 @@ Baked 350 for 29 minutes (12 uncovered, 10 covered, then 5 more uncovered).
 ### Dough:
 - 340.5g milk
 - 9g yeast
-- 600g flour
+- 610g flour
 - 75g sugar
 - 1.5g salt
 - 56.5g butter
