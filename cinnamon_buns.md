@@ -1,5 +1,5 @@
-## November 4, 2023
-Filling can be cut down a bit. Probably by 10-20%.
+## January 28, 2024
+Baked 20 minutes uncovered and then 5 covered. May have been a bit too crispy leaving uncovered that long to start.
 
 ## November 1, 2022
 Put everything in the bowl and mix for 9 minutes. Add a bit of flour as needed. 
