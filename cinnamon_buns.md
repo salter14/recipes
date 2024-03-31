@@ -1,3 +1,6 @@
+## March 30, 2024
+Baked 15 minutes uncovered, then 15 covered. Pretty good, but could be a few minutes less. Maybe just 13 covered next time.
+
 ## February 14, 2024
 Baked 15 minutes uncovered, then 10 covered, then 3 uncovered. I think the last three should have been covered, as the tops got a bit brown.
 
