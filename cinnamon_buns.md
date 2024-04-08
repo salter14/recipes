@@ -77,10 +77,18 @@ yeastkingarthurbaking.com/recipes/cinna-buns-recipe
 - yeast 7 g
 
 ### Icing
+- 110g cream cheese, softened
+- 73g unsalted butter, softened
+- 220g confectioners' sugar
+- 1 teaspoon vanilla extract
+- bit of milk and salt
+
+old, lower quantity
 - 85g cream cheese, softened
 - 57g unsalted butter, softened
 - 170g confectioners' sugar
 - 1/2 teaspoon vanilla extract
 - bit of milk and salt?
+
 
 Bake @ 400 for about 12 minutes. I went with closer to 13 or so this time and it could have been less.
