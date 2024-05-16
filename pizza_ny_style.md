@@ -29,6 +29,12 @@ Produces two dough balls that will make 17 inch pizzas.
 * Put dough in fridge if using within 3 days. 
   * Alternative: Place in freezer for longer storage and move from freezer to fridge 24 hours before prep time.
 
+## Prep and baking
+* Preheat oven to 550 for 45-60 minutes
+* Remove from fridge and let sit on counter for 45 minutes to allow dough to warm to about 60 degrees
+* Stretch and shape, then apply toppings
+* Bake for 6-7 minutes. Bottom should have some dark spots and top should be starting to brown slightly.
+
 # Sauce
 * 28 oz can of steam pealed tomatoes (California)
 * 8g sugar
