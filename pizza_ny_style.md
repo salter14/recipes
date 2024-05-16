@@ -36,9 +36,11 @@ Produces two dough balls that will make 17 inch pizzas.
 * Bake for 6-7 minutes. Bottom should have some dark spots and top should be starting to brown slightly.
 
 # Sauce
-* 28 oz can of steam pealed tomatoes (California)
-* 8g sugar
-* 2g salt
-* bit of oregano and basil
-* few grinds of fresh black pepper
-  
+* Ingredients:
+  * 28 oz can of steam pealed tomatoes (California)
+  * 8g sugar
+  * 2g salt
+  * bit of oregano and basil
+  * few grinds of fresh black pepper
+* Blend ingredients in food processor or blender for about a minute and apply to pizza
+
