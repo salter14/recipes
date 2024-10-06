@@ -77,6 +77,14 @@ yeastkingarthurbaking.com/recipes/cinna-buns-recipe
 - yeast 7 g
 
 ### Icing
+20% more (20241005)
+- 132g cream cheese, softened
+- 87g unsalted butter, softened
+- 264g confectioners' sugar
+- 1 teaspoon vanilla extract
+- bit of milk and salt
+
+Mid amount
 - 110g cream cheese, softened
 - 73g unsalted butter, softened
 - 220g confectioners' sugar
