@@ -29,6 +29,14 @@ Baked 350 for 29 minutes (12 uncovered, 10 covered, then 5 more uncovered).
 - 21g cinnamon
 - 1.5g cardamom
 
+### Icing:
+- 106g cream cheese, softened 
+- 71g unsalted butter, softened
+- 212g confectioners' sugar
+- 1 teaspoon vanilla extract
+- bit of milk and salt
+- 3-4 teaspoons lemon juice
+
 
 ## April 2022
 https://simplyhomecooked.com/homemade-cinnamon-rolls/
