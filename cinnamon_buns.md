@@ -41,10 +41,9 @@ Notes:
 
 ### Dough:
 - 340.5g milk
-- 24.75g sugar
+- 75g sugar
 - 9g yeast
 - 570g flour
-- 49.5g sugar
 - 1.5g salt
 - 56.5g butter
 - 4.67g vanilla extract
