@@ -1,3 +1,6 @@
+## October 18, 2025
+Baked 12 minutes uncovered, then 15 covered. Emily was happy with these. I put the foil on loosley and the buns on the edge were a bit crispy.
+
 ## March 30, 2024
 Baked 15 minutes uncovered, then 15 covered. Pretty good, but could be a few minutes less. Maybe just 13 covered next time.
 
