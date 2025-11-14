@@ -5,7 +5,7 @@ Bake 12 minutes uncovered, then 15 covered.
 - 9g yeast
 - 610g flour
 - 75g sugar
-- 1.5g salt
+- 5g salt
 - 56.5g butter
 - 2g vanilla extract
 - 2 eggs
