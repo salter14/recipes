@@ -14,8 +14,8 @@ Based on this receipe: https://www.biggerbolderbaking.com/sticky-buns/
 * 170g butter, melted, plus more for sides of the pan
 * 220g brown sugar
 * 115g honey
-* 3g teaspoon ground cinnamon
-* 4g teaspoon salt
+* 12g ground cinnamon
+* 4g salt
 
 ## Instructions
 * In a large bowl combine the flour, yeast and salt. Set aside.
