@@ -1,6 +1,7 @@
 Sticky Buns
 Based on this receipe: https://www.biggerbolderbaking.com/sticky-buns/
 
+## Ingredients
 * 240g milk
 * 6g instant yeast
 * 12g salt
@@ -16,7 +17,7 @@ Based on this receipe: https://www.biggerbolderbaking.com/sticky-buns/
 * 3g teaspoon ground cinnamon
 * 4g teaspoon salt
 
-
+## Instructions
 * In a large bowl combine the flour, yeast and salt. Set aside.
 * In a separate jug, mix together the milk, honey, butter. Pop in the microwave and gently heat for a few seconds until the mix is lukewarm and the butter is melting.
 * Once the butter has melted quickly whisk in the eggs until combined. You want to make sure the mix isn’t hot otherwise the eggs will cook.
