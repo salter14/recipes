@@ -1,5 +1,8 @@
 Based on this recipe: https://sallysbakingaddiction.com/homemade-cinnamon-swirl-bread/
 
+other variations: https://handletheheat.com/cinnamon-swirl-bread/
+
+
 Ingredients:
 - Water	240g
 - Milk	240g
